@@ -1,5 +1,5 @@
-Hi I am Saranya
+Hi👋 I am Saranya 😊
 
-Final Year Student
+Final Year Student✨
 
-Computer Science And Engineering
+Computer Science And Engineering 💻
