@@ -14,7 +14,7 @@ CONNECT WITH ME..
 
 LANGUAGES AND TOOLS 
 
-<img src="https://github.com/user-attachments/assets/d1d86b78-e77a-4069-9c2b-656739a3fe5e" height="40" width="40">    <img src="https://github.com/user-attachments/assets/2ca6bbdb-ba06-4034-a362-1cc6b7720baa" height="40" width="40">  <img src="https://github.com/user-attachments/assets/cfaa841a-04fd-494f-a1bc-811f5973b5e5" height="40" width="40">  <img src=" https://github.com/user-attachments/assets/e91fd470-71ad-40f9-9b3c-2b74ccad76f6" height="40" width="40">
+<img src="https://github.com/user-attachments/assets/d1d86b78-e77a-4069-9c2b-656739a3fe5e" height="40" width="40">    <img src="https://github.com/user-attachments/assets/2ca6bbdb-ba06-4034-a362-1cc6b7720baa" height="40" width="40">  <img src="https://github.com/user-attachments/assets/cfaa841a-04fd-494f-a1bc-811f5973b5e5" height="40" width="40">  <img src="https://github.com/user-attachments/assets/5badb84f-a07c-428f-b5d6-9db90fcbe2de" height="40" width="40">
 
 
 
